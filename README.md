@@ -11,5 +11,5 @@
 * Monday: [open]
 * Tuesday: Sitar 
 * Wednesday: Jimmy Johns (To Go)
-* Thursday: [open]
+* Thursday: Dreamland
 * Friday: [open]
